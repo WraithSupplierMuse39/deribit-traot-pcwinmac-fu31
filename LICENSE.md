@@ -1,4 +1,4 @@
-# 
+# Professional deribit trading bot workflow for Mac OS | VIP deribit trading bot workflow for PC Windows. Featuring futures trading and decentralized exchange api — optimized for maximum performance.
 
 
 
